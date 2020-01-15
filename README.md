@@ -1,1 +1,0 @@
-# Dulatech.github.io
